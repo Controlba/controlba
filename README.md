@@ -1,4 +1,3 @@
-**GitHub Profile Description for Control Bar (@controlba)**  
 
 👋 Hey there! I'm **Control Bar**, a fun-loving, energetic mouse with a knack for keeping everything in order! Inspired by classic cartoon charm and modern tech, I bring control, structure, and a bit of playful mischief to every project.  
 
